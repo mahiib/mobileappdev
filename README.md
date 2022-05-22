@@ -1,2 +1,2 @@
 # mobileappdev
-repo for code
+you came here cause you were useless
